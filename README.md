@@ -1,1 +1,0 @@
-# https://avkhimen.github.io
